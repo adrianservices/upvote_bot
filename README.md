@@ -12,4 +12,4 @@
 
 ✅%100 Automatically!💎
 
-✅DM me https://t.me/adrianservices if you are interested.🤝
+DM me from Telegram: https://t.me/adrianservices if you are interested.🤝
